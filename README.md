@@ -4,7 +4,7 @@ web rank web rank history Traffic Rank Traffic Rank and Visitor History
 
 ## [myrank2traffic](#myrank2traffic)
 
-## [Free Tool to Check Website Rankings: myrank2traffic, the Free Alternative to Ahrefs!](#Free Tool to Check Website Rankings)
+## [Free Tool to Check Website Rankings: myrank2traffic, the Free Alternative to Ahrefs!](#free_Tool_to_Check_Website_Rankings)
 
 
 <a name="myrank2traffic"></a>
@@ -61,7 +61,7 @@ Visit Now: MyRank2Traffic platform, enter the target URL to unlock up to 8 years
 
 
 
-<a name="Free Tool to Check Website Rankings"></a>
+<a name="free_Tool_to_Check_Website_Rankings"></a>
 ## Free Tool to Check Website Rankings: myrank2traffic, the Free Alternative to Ahrefs!
 
 Tired of the high costs of paid tools? Want to understand website rankings and traffic trends but lack a suitable free tool? Today, we recommend a treasure platform — myrank2traffic (https://rank2traffic.hualesoft.cn/), known as the "free version of Ahrefs," allowing you to master website rankings and competitor dynamics at zero cost!
